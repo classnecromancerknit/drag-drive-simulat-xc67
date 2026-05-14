@@ -1,4 +1,4 @@
-#  
+#  no-ban Scripts for drag drive simulator offers the most advanced drag drive simulator Script, with unlimited stamina and god mode. Perfect for
 
 
 
